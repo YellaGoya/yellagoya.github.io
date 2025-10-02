@@ -1,1 +1,0 @@
-# yellagoya.github.io
